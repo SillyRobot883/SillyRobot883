@@ -1,5 +1,5 @@
 
- I’m interested in Competitive Programming, A.I., and Data Science.
+interested in Competitive Programming, A.I., and Data Science.
 
 
 Email: Aziz.alk550@gmail.com
