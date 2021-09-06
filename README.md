@@ -1,5 +1,5 @@
 
-interested in Competitive Programming, A.I., and Data Science.
+interested in A.I, Robotics.
 
 
 Email: Aziz.alk550@gmail.com
