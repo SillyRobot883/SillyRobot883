@@ -1,5 +1,4 @@
 
-interested in A.I, Robotics.
 
 
 Email: Aziz.alk550@gmail.com
