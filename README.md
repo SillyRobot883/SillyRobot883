@@ -1,7 +1,6 @@
 
 
 
-Email: Aziz.alk550@gmail.com
 linkedin: https://www.linkedin.com/in/abdulaziz-alkathiri5/
 
 <!---
