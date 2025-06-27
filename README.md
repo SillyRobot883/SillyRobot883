@@ -1,7 +1,7 @@
 
 
 ### I create stuff
-linkedin: https://www.linkedin.com/in/abdulaziz-alkathiri5/
+linkedin: https://www.linkedin.com/in/abdulazizalkathiri/
 
 <!---
 SillyRobot883/SillyRobot883 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
